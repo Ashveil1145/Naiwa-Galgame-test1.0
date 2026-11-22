@@ -1,0 +1,1 @@
+# Naiwa-Galgame-test1.0
